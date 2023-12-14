@@ -1,5 +1,5 @@
 # 💫 About Me:
-- Protheus Analyst<br>- Studying Information Systems 8/8<br><br>
+- Protheus Analyst<br>- Bacharel Information Systems <br><br>
 
 
 ## 🌐 Socials:
